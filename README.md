@@ -1,2 +1,3 @@
 # textshare
 test
+https://play.google.com/apps/test/RQJZg4pjJt8/ahAO29uNSkV1moqsdpZ2EQLomiXxyuDaalzbDGU4Nx5Dam0oXhFueEPqqht9cQb7PHybZ445VXS5DrA4Gil3THg4M-
